@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 I’m currently learning more about Web3,FOREX,CRYPTO.<br>👯 I’m looking to collaborate on Personal projects.<br>🤔 I’m looking for help with Backend .<br>💬 Ask me about  Hardware ,Trading .<br>📫 How to reach me: Twitter - @dji_shirishkc<br>😄 Pronouns: He/His<br>⚡ Fun fact I am a Technician,Trader.
+🌱 I’m currently learning more about Web3,FOREX,CRYPTO.<br>👯 I’m looking to collaborate on Personal projects.<br>🤔 I’m looking for help with Backend .<br>💬 Ask me about  Hardware ,Trading .<br>📫 How to reach me: link in bio..<br>😄 Pronouns: He/His<br>⚡ Fun fact I am a Technician,Trader.
 
 
 ## 🌐 Socials:
